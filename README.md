@@ -14,4 +14,4 @@ jazz. If I get it up, the link will be here.
 
 I'm awesome, basically. You don't need to know much else. You can read my [blog](http://blog.royaldev.org) if you want.
 
-I donated **562** points! I'm awesome!
+I donated **755.2** points! I'm awesome!
